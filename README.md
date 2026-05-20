@@ -21,7 +21,7 @@
 <img src="https://files.catbox.moe/thgsz6.png" width="400" alt="be my daddy by lana del rey">
 
 <details> 
-  <summary>   　　　 ⌢⌢ ﹒◟ 　　links / socials　!!　⨾　₊　　∘　 </summary>
+  <summary> $${\color{#fff7e6}  　 ⌢⌢ ﹒◟ 　　links / socials　!!　⨾　₊　∘　}$$ </summary>
   <a href="https://guns.lol/pupsome">guns</a> <br>
   <a href="https://pupsome.carrd.co">carrd</a> <br>
   <a href="https://pupsome.atabook.org/">atabook</a> <br>
