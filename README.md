@@ -34,4 +34,4 @@
 
  <img src="https://files.catbox.moe/v92cg6.png" width="400" alt="kinda outta luck by lana del rey">
 
-<img src="https://files.catbox.moe/xoa6k8.png" width="80" alt="american by lana del rey"> 　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=e3a6a1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<img src="https://files.catbox.moe/xoa6k8.png" width="80" alt="american by lana del rey"> 　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=e3a6a1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://files.catbox.moe/aoyefl.png" width="400" align="right" alt="the mirror by lana del rey">
