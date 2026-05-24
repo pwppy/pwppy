@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/ljaben.png" width="360" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/ljaben.png" width="375" align="left" alt="off to the races by lana del rey">
 
 <p align="center">
   <table>
@@ -30,7 +30,7 @@ $${\color{#E2D7CD}　　as \space you \space do \space now, \space my \space man
   </table>
 </p>
 
-<img src="https://files.catbox.moe/68nu2i.png" width="290" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/68nu2i.png" width="310" align="left" alt="off to the races by lana del rey">
 <br><br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=E3CAC1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
