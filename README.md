@@ -51,4 +51,4 @@ $${\color{#E2D7CD}　　the \space heart \space shape \space my \space ass \spac
   </table>
 </p>
 
-<img src="https://komarev.com/ghpvc/?username=luuvbite&style=flat-square&color=C49DAA&label=﹒_　_𑁥౿_　_𐂯_　_。_ꕀ" alt="profile view counter"> 　　　　𑣲 　　 $${\color{#C49DAA}little}$$ $${\color{#C49DAA}guys!}$$
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=C49DAA&label=_　_𑁥౿_　_𐂯_　" alt="profile view counter"> 　　　𑣲 　　 $${\color{#C49DAA}little}$$ $${\color{#C49DAA}guys!}$$
