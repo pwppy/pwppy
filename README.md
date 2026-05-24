@@ -5,7 +5,7 @@
     <tr>
       <td>
         <details> 
-          <summary> $${\color{#C49DAA}　　⬫　 \space .　　links!　　ꪆ୧ ·　 ׅ  　 ·}$$ </summary><br>
+          <summary> $${\color{#C49DAA}　⬫　 \space .　links!　　ꪆ୧ ·　 ׅ  　 ·}$$ </summary><br>
           <a href="https://guns.lol/pupsome">guns</a> <br>
           <a href="https://pupsome.carrd.co">carrd</a> <br>
           <a href="https://pupsome.atabook.org/">atabook</a> <br>
