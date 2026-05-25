@@ -42,8 +42,8 @@ $${\color{#E2D7CD}　　the \space heart \space shape \space my \space ass \spac
       <td>
         <details> 
           <summary> $${\color{#D0ADB4}　𐔌　ׅ͡ 𓈒𓏲ׁ \space 　𓈒 ݁　friends \space ! \space  \space ᣟ 　◟ \space ˖}$$ </summary><br>
-          my family!! <a href="https://github.com/MrPapbee">papa papbee</a>, <a href="https://github.com/06chromis">big bro chromis</a>, <a href="https://github.com/hyacinethia">big sis genesis</a>, <a href="https://github.com/SUBMRGD">big bro2 kasper</a>, <a href="https://github.com/deceitfuldevil">big sis2 mai</a>, and <a href="https://github.com/angxlsfluff">big sis3 koji!</a>, <br>
-          and my awesome packmates =33 <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/spotpup">spotpup</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX</a>, <a href="https://github.com/mothbear">mothbear</a>, and <a href="https://github.com/militarymutt">militarymutt</a>! <br>
+          my pack! <a href="https://github.com/MrPapbee">papa papbee</a>, <a href="https://github.com/06chromis">big bro chromis</a>, <a href="https://github.com/hyacinethia">big sis genesis</a>, <a href="https://github.com/SUBMRGD">big bro2 kasper</a>, <a href="https://github.com/deceitfuldevil">big sis2 mai</a>, and <a href="https://github.com/angxlsfluff">big sis3 koji!</a>, <br>
+          and my awesome littermates =33 <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/spotpup">spotpup</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX</a>, <a href="https://github.com/mothbear">mothbear</a>, and <a href="https://github.com/militarymutt">militarymutt</a>! <br>
           note that i only add people who have me in their github or are dear to me ^_^ <br>
         </details>
       </td>
