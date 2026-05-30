@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/gfaear.gif" width="400" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/gfaear.gif" width="450" align="left" alt="off to the races by lana del rey">
 
   <table>
     <tr>
@@ -21,8 +21,9 @@
     <tr>
       <td>
      $${\color{#D0ADB4}꒰ \space ܸ𐄙 \space ༝ \space 𐄙 \space ܸ𐨯ﾟ⸒　　۶ৎ　　and \space i \space said}$$ <br>
-     $${\color{#E2C1C4}　　"he \space loves \space my \space heart \space shaped \space sunglasses!}$$ <br>
-     $${\color{#E2D7CD}　　he \space loves \space the \space heart \space shape \space my \space ass \space is!"　੭　؛ ଓ }$$ <br>
+     $${\color{#E2C1C4}　　"he \space loves}$$ <br>
+     $${\color{#E3CAC1}　　my \space heart \space shaped \space sunglasses! he \space loves}$$ <br>
+     $${\color{#E2D7CD}　　the \space heart \space shape \space my \space ass \space is!"　੭　؛ ଓ }$$ <br>
       </td>
     </tr>
   </table>
