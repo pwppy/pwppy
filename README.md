@@ -23,10 +23,9 @@
   <table>
     <tr>
       <td>
-$${\color{#D0ADB4}꒰ \space ܸ𐄙 \space ༝ \space 𐄙 \space ܸ𐨯ﾟ⸒　　۶ৎ　　and \space i \space said}$$ <br>
-$${\color{#E2C1C4}　　"he \space loves \space my,⠀⠀𓏵⠀⠀ ׅ}$$ <br>
-$${\color{#E3CAC1}　　heart \space shaped \space sunglasses! \space he \space loves}$$ <br>
-$${\color{#E2D7CD}　　the \space heart \space shape \space my \space ass \space is!"　੭　؛ ଓ }$$  <br>
+     $${\color{#D0ADB4}꒰ \space ܸ𐄙 \space ༝ \space 𐄙 \space ܸ𐨯ﾟ⸒　　۶ৎ　　and \space i \space said}$$ <br>
+     $${\color{#E2C1C4}　　"he \space loves \space my \space heart \space shaped \space sunglasses!}$$ <br>
+     $${\color{#E2D7CD}　　he \space loves \space the \space heart \space shape \space my \space ass \space is!"　੭　؛ ଓ }$$ <br>
       </td>
     </tr>
   </table>
