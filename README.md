@@ -1,6 +1,5 @@
 <img src="https://files.catbox.moe/2wazea.png" width="400" align="left" alt="off to the races by lana del rey">
 
-<p align="center">
   <table>
     <tr>
       <td>
@@ -17,9 +16,7 @@
       </td>
     </tr>
   </table>
-</p>
 
-<p align="center">
   <table>
     <tr>
       <td>
@@ -29,13 +26,11 @@
       </td>
     </tr>
   </table>
-</p>
-
+  
 <img src="https://files.catbox.moe/7xs2o7.png" width="295" align="left" alt="off to the races by lana del rey">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=E3CAC1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
-<p align="center">
   <table>
     <tr>
       <td>
@@ -48,6 +43,5 @@
       </td>
     </tr>
   </table>
-</p>
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=C49DAA&label=_　_𑁥౿_　_𐂯_　" alt="profile view counter"> 　　　𑣲 　　 $${\color{#C49DAA}little}$$ $${\color{#C49DAA}guys!}$$
