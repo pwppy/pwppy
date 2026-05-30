@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/gfaear.gif" width="450" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/gfaear.gif" width="470" align="left" alt="off to the races by lana del rey">
 
   <table>
     <tr>
