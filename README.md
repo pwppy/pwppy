@@ -27,8 +27,12 @@
       </td>
     </tr>
   </table>
+
+<br>
   
 <img src="https://files.catbox.moe/lki9b3.gif" width="295" align="left" alt="off to the races by lana del rey">
+
+<br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=ddb3b4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
