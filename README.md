@@ -46,3 +46,5 @@
   </table>
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=9e7b87&label=_　_𑁥౿_　_𐂯_　" alt="profile view counter"> 　　　𑣲 　　 $${\color{#776f78}little}$$ $${\color{#776f78}fuckers}$$
+
+<img src="https://files.catbox.moe/054ryz.png" width="295" align="left" alt="money power glory by lana del rey">
