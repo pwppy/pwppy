@@ -1,10 +1,10 @@
-<img src="https://files.catbox.moe/s49ifk.png" width="400" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/iny27u.png" width="400" align="left" alt="off to the races by lana del rey">
 
   <table>
     <tr>
       <td>
         <details> 
-          <summary> $${\color{#8f716d}　 \space ⬫　 \space .　links \space !!　　ꪆ୧ ·　 ׅ  　 ·}$$ </summary><br>
+          <summary> $${\color{#776f78}　 \space ⬫　 \space .　links \space !!　　ꪆ୧ ·　 ׅ  　 ·}$$ </summary><br>
           <a href="https://rentry.co/angxlpup">shared rentry with awesome sis @angxlsfluff!!</a> <br>
           <br>
           <a href="https://guns.lol/pupsome">guns</a> <br>
@@ -20,23 +20,23 @@
   <table>
     <tr>
       <td>
-     $${\color{#b4887c}૮₍ \space ´ \space ꒳ \space `₎ა　　۶ৎ　　i \space might}$$ <br>
-     $${\color{#c49093}　ᰋ　𓈒　burn　 ͚.ི　 \space your \space toast,}$$ <br>
-     $${\color{#d59c9c}　but \space baby　!　(\space´ㅅ`\spaceＵ)ﾉｼ　　  ׁ   ៹ }$$ <br>
-     $${\color{#dcb6af}　　im　 \space still　 \space the　 \space bestest　!　 \space"}$$ <br>
+     $${\color{#9e7b87}૮₍ \space ´ \space ꒳ \space `₎ა　　۶ৎ　　i \space might}$$ <br>
+     $${\color{#cf8b9a}　　　ᰋ　𓈒　　burn \space your \space toast,}$$ <br>
+     $${\color{#ddb3b4}　but \space baby　!　(\space´ㅅ`\spaceＵ)ﾉｼ　　  ׁ   ៹ }$$ <br>
+     $${\color{#e3cbc5}　　im　 \space still　 \space the　 \space bestest　!　 \space"}$$ <br>
       </td>
     </tr>
   </table>
   
-<img src="https://files.catbox.moe/s49ifk.png" width="295" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/lki9b3.gif" width="295" align="left" alt="off to the races by lana del rey">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=dcb6af&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=ddb3b4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
   <table>
     <tr>
       <td>
         <details> 
-          <summary> $${\color{#d59c9c}　꒰ᩧׁׅ　　𓏼 \space 　ᰍ　my \space friends! \space ゛ \space 𓈒　e}$$ </summary><br>
+          <summary> $${\color{#cf8b9a}　꒰ᩧׁׅ　　𓏼 \space 　ᰍ　my \space friends! \space ゛ \space 𓈒　e}$$ </summary><br>
           my pack! <a href="https://github.com/MrPapbee">papa papbee</a>, <a href="https://github.com/06chromis">big bro chromis</a>, <a href="https://github.com/hyacinethia">big sis genesis</a>, <a href="https://github.com/SUBMRGD">big bro2 kasper</a>, <a href="https://github.com/deceitfuldevil">big sis2 mai</a>, and <a href="https://github.com/angxlsfluff">big sis3 koji!</a>, <br>
           and my awesome littermates =33 <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/spotpup">spotpup</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX</a>, <a href="https://github.com/mothbear">mothbear</a>, and <a href="https://github.com/militarymutt">militarymutt</a>! <br>
           note that i only add people who have me in their github or are dear to me ^_^ <br>
@@ -45,4 +45,4 @@
     </tr>
   </table>
 
-<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=c49093&label=_　_𑁥౿_　_𐂯_　" alt="profile view counter"> 　　　𑣲 　　 $${\color{#b4887c}little}$$ $${\color{#8f716d}guys!}$$
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=9e7b87&label=_　_𑁥౿_　_𐂯_　" alt="profile view counter"> 　　　𑣲 　　 $${\color{#776f78}little}$$ $${\color{#776f78}fuckers}$$
