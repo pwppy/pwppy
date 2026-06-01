@@ -9,8 +9,6 @@
   
 </details>
 
-<img src="https://files.catbox.moe/tlgy8o.gif" width="295" align="left" alt="girl that got away by lana del rey"> <br>
-
   <table>
     <tr>
       <td>
