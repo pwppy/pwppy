@@ -39,6 +39,7 @@
 
 <br><br><br>
 
-## happy pride month & happy mens mental health awareness month!! we _all_ deserve sunshine♡
+## happy pride month & happy mens mental health awareness month!!
+## we _all_ deserve sunshine♡
 <img src="https://files.catbox.moe/6uk3mf.png" width="295"> <img src="https://files.catbox.moe/hb2u31.png" width="295">
 
