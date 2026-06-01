@@ -40,5 +40,6 @@
 
 ## happy pride month & happy mens mental health awareness month!!
 ## we _all_ deserve sunshine♡
-<img src="https://files.catbox.moe/6uk3mf.png" width="295"> <img src="https://files.catbox.moe/hb2u31.png" width="295">
+<img src="https://files.catbox.moe/6uk3mf.png" width="250"> <img src="https://files.catbox.moe/hb2u31.png" width="250"> <img src="https://files.catbox.moe/m8hc9u.png" width="250">
+
 
