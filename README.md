@@ -39,12 +39,13 @@
 <br><br><br>
 
 ## happy pride month & happy mens mental health awareness month!!
-## we _all_ deserve sunshine♡
 <img src="https://files.catbox.moe/6uk3mf.png" width="250"> <img src="https://files.catbox.moe/hb2u31.png" width="250"> <img src="https://files.catbox.moe/m8hc9u.png" width="250">
 
-**Omniromantic** is a romantic orientation where a person is attracted to all genders, sometimes with a preference for certain genders.
-
-**Androsexual** is a sexual orientation where a person is attracted to men, males, and/or masculinity in general.
-
-**Felicanfluid** is a gender where one's identity is not fixed and shifts between that of a felidae (cat) and canidae (dog). This encompasses all species in the families and can be used variably. (i made this one myself!)
+<details>
+  <summary>click for definitions!</summary>
+      we all deserve sunshine♡ <br> you are loved no matter what!
+      1. Omniromantic is a romantic orientation where a person is attracted to all genders, sometimes with a preference for certain genders. <br>
+      2. Androsexual is a sexual orientation where a person is attracted to men, males, and/or masculinity in general. <br>
+      3. Felicanfluid is a gender where one's identity is not fixed and shifts between that of a felidae (cat) and canidae (dog). This encompasses all species in the families and can be used variably. (i made this one myself!) <br>
+</details>
 
