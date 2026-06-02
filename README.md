@@ -43,7 +43,7 @@
 
 <details>
   <summary>click for definitions!</summary>
-      we all deserve sunshine♡ <br> you are loved no matter what!
+      we all deserve sunshine♡ <br> you are loved no matter what! <br>
       1. Omniromantic is a romantic orientation where a person is attracted to all genders, sometimes with a preference for certain genders. <br>
       2. Androsexual is a sexual orientation where a person is attracted to men, males, and/or masculinity in general. <br>
       3. Felicanfluid is a gender where one's identity is not fixed and shifts between that of a felidae (cat) and canidae (dog). This encompasses all species in the families and can be used variably. (i made this one myself!) <br>
