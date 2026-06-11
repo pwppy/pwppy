@@ -21,7 +21,7 @@
     </tr>
   </table>
 
-<img src="https://files.catbox.moe/5h0b0u.gif" width="295" align="left" alt="off to the races by lana del rey">
+<img src="https://github.com/user-attachments/assets/f7f6e113-5f72-4830-8088-a92cbc86ea1a" width="295" align="left" alt="off to the races by lana del rey">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=ddb3b4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
@@ -40,11 +40,11 @@
 <br><br><br>
 
 ## happy pride month & happy mens mental health awareness month!!
-<img src="https://files.catbox.moe/6uk3mf.png" width="250"> <img src="https://files.catbox.moe/hb2u31.png" width="250"> <img src="https://files.catbox.moe/m8hc9u.png" width="250">
+<img src="https://files.catbox.moe/6uk3mf.png" width="250"> <img src="https://github.com/user-attachments/assets/082d7377-b0c6-40de-a74b-3124e97b7232" width="250"> <img src="https://files.catbox.moe/m8hc9u.png" width="250">
 
 <details>
   <summary>click for definitions!</summary>
-      we all deserve sunshine♡ <br> you are loved no matter what! <br>
+      we all deserve sunshine♡ you are loved no matter what! <br>
       1. Omniromantic is a romantic orientation where a person is attracted to all genders, sometimes with a preference for certain genders. <br>
       2. Androsexual is a sexual orientation where a person is attracted to men, males, and/or masculinity in general. <br>
       3. Felicanfluid is a gender where one's identity is not fixed and shifts between that of a felidae (cat) and canidae (dog). This encompasses all species in the families and can be used variably. (i made this one myself!) <br>
