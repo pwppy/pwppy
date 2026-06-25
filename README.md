@@ -5,7 +5,7 @@
   <table>
     <tr>
       <td>
-     $${\color{#f1b1c4}૮₍ \space ´ \space ꒳ \space `₎ა　put \space bows \space on \space evrrything \space ,}$$　<img src="https://files.catbox.moe/cpobrl.gif" width="20" alt="wan! wan!"><br>
+     $${\color{#f1b1c4}( \space ´ㅅ` \space Ｕ)ﾉｼ　put \space bows \space on \space evrrything \space ,}$$　<img src="https://files.catbox.moe/cpobrl.gif" width="20" alt="wan! wan!"><br>
     　 <img src="https://files.catbox.moe/zp5tjk.gif" width="20" alt="wan! wan!"> 　 $${\color{#f9c8d2}always \space the \space color \space pink!　﹒౿ \space ₎₎}$$ <br>
       </td>
     </tr>
