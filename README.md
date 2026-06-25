@@ -14,13 +14,13 @@
   <table>
     <tr>
       <td>
-     $${\color{#f1b1c4}૮₍ \space ´ \space ꒳ \space `₎ა　　put \space bows \space on \space evrrything \space ,}$$ 　<img src="https://files.catbox.moe/yidv6p.gif" width="20" alt="wan! wan!">　<img src="https://files.catbox.moe/cpobrl.gif" width="20" alt="wan! wan!"><br>
+     $${\color{#f1b1c4}૮₍ \space ´ \space ꒳ \space `₎ა　　put \space bows \space on \space evrrything \space ,}$$　<img src="https://files.catbox.moe/cpobrl.gif" width="20" alt="wan! wan!"><br>
     　　  <img src="https://files.catbox.moe/zp5tjk.gif" width="20" alt="wan! wan!"> 　 $${\color{#f9c8d2}always \space the \space color \space pink!　﹒౿ \space ₎₎}$$ <br>
       </td>
     </tr>
   </table>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=ffd8dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffd8dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://files.catbox.moe/doqron.png" width="80">
 
 <details>
   <summary><img src="https://files.catbox.moe/mlaqyh.gif" width="20" alt="wan! wan!"> $${\color{#f9c8d2}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　𑜀ყ \space friᥱᥒd𝓈! \space ゛ \space 𓈒　e}$$ </summary><br>
@@ -30,7 +30,7 @@
 
 </details>
 
-<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ddb3b4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#99abb2}customrrs}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ddb3b4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#99abb2}sled \space pwppies!}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
 
 <img src="https://files.catbox.moe/lki9b3.gif" width="295" align="left" alt="money power glory by lana del rey">
 
