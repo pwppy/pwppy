@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/iny27u.png" width="350" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/qej5f2.png" width="350" align="left" alt="off to the races by lana del rey">
 
 <details>
   <summary><img src="https://files.catbox.moe/0pl8uh.gif" width="20" alt="wan! wan!"> $${\color{#776f78} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
