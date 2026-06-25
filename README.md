@@ -12,7 +12,14 @@
   all my profiles are being reworked so the colors will slooowly change LOL!! otherwise the information is the same <br>
   </details>
 
-  <br><br><br><br>
+  <table>
+    <tr>
+      <td>
+     $${\color{#f1b1c4}૮₍ \space ´ \space ꒳ \space `₎ა　put \space bows \space on \space evrrything \space ,}$$　<img src="https://files.catbox.moe/cpobrl.gif" width="20" alt="wan! wan!"><br>
+    　 <img src="https://files.catbox.moe/zp5tjk.gif" width="20" alt="wan! wan!"> 　 $${\color{#f9c8d2}always \space the \space color \space pink!　﹒౿ \space ₎₎}$$ <br>
+      </td>
+    </tr>
+  </table>
 
   <details>
   <summary><img src="https://files.catbox.moe/mlaqyh.gif" width="20" alt="wan! wan!"> $${\color{#f9c8d2}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　𑜀ყ \space friᥱᥒd𝓈! \space ゛ \space 𓈒　e}$$ </summary><br>
