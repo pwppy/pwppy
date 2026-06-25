@@ -34,4 +34,4 @@
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ddb3b4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#99abb2}sled \space pwppyys!}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
 
-<img src="https://files.catbox.moe/lki9b3.gif" width="295" align="left" alt="money power glory by lana del rey">
+<img src="https://files.catbox.moe/h6e8tx.gif" width="295" align="left" alt="off to the races by lana del rey">
