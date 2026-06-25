@@ -3,7 +3,7 @@
 <details>
   <summary><img src="https://files.catbox.moe/0pl8uh.gif" width="20" alt="wan! wan!"> $${\color{#776f78} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
 
-  <img src="https://files.catbox.moe/qwcdzj.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/rmwzx7.gif">](https://rentry.co/angxlpup) $${\color{#ddb3b4}mi \rentry}$$ <br> <br>
+  <img src="https://files.catbox.moe/qwcdzj.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/rmwzx7.gif">](https://rentry.co/angxlpup) $${\color{#ddb3b4}mi \space rentry}$$ <br> <br>
   $${\color{#ddb3b4}profiles!}$$ [<img src="https://files.catbox.moe/vx4ctz.gif">](https://guns.lol/pupsome) [<img src="https://files.catbox.moe/2kbsei.gif">](https://pupsome.carrd.co) <img src="https://files.catbox.moe/0kvv93.gif" width="20" alt="wan! wan!"> <br>
   <img src="https://files.catbox.moe/86vdia.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/gyfhvc.gif">](https://pupsome.atabook.org/) [<img src="https://files.catbox.moe/cdqqug.gif">](https://pupsome.straw.page/) [<img src="https://files.catbox.moe/95ra6h.gif">](https://en.pronouns.page/@pupsome) <br>
   and my [work in pawgress pronouns.cc](https://pronouns.cc/@pupsome) looks around <br>
