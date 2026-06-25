@@ -28,8 +28,6 @@
           $${\color{#feeae9}note \space that \space i \space only \space add \space people \space who \space have \space me \space in \space their \space gh \space or \space are \space dear \space to \space me}$$ <img src="https://files.catbox.moe/nbl1d4.gif" width="20" alt="wan! wan!"> <br>
   </details>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffd8dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ddb3b4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#99abb2}sled \space pwppyys!}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
 
