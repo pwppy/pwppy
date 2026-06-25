@@ -5,8 +5,8 @@
 
   <img src="https://files.catbox.moe/qwcdzj.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/rmwzx7.gif">](https://rentry.co/angxlpup) <br> <br>
   $${\color{#ddb3b4}profiles!}$$ [<img src="https://files.catbox.moe/vx4ctz.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2kbsei.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/0kvv93.gif" width="20" alt="wan! wan!"> <br>
-  <img src="https://files.catbox.moe/86vdia.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/gyfhvc.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/cdqqug.gif">](https://https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/95ra6h.gif">](https://en.pronouns.page/@pwppys) <br>
-  and my [work in pawgress pronouns.cc](https://pronouns.cc/@pupsome) looks around <br>
+  <img src="https://files.catbox.moe/86vdia.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/gyfhvc.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/cdqqug.gif">](https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/95ra6h.gif">](https://en.pronouns.page/@pwppy) <br>
+  and my [work in pawgress pronouns.cc](https://pronouns.cc/@pwppys) looks around <br>
   
 </details>
 
