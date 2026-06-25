@@ -12,7 +12,7 @@
   </table>
 
   <details>
-  <summary><img src="https://files.catbox.moe/0pl8uh.gif" width="20" alt="wan! wan!"> $${\color{#99abb2} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
+  <summary><img src="https://files.catbox.moe/0pl8uh.gif" width="20" alt="wan! wan!"> $${\color{#f1b1c4} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
 
   <img src="https://files.catbox.moe/qwcdzj.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/rmwzx7.gif">](https://rentry.co/angxlpup) <br> <br>
   $${\color{#feeae9}profiles!}$$ [<img src="https://files.catbox.moe/vx4ctz.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2kbsei.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/0kvv93.gif" width="20" alt="wan! wan!"> <br>
@@ -29,6 +29,6 @@
   </details>
 
 
-<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ddb3b4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#99abb2}sled \space pwppyys!}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=f1b1c4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#f9c8d2}sled \space pwppyys!}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
 
 <img src="https://files.catbox.moe/h6e8tx.gif" width="295" align="left" alt="off to the races by lana del rey">
