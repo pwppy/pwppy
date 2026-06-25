@@ -7,6 +7,7 @@
   $${\color{#ddb3b4}profiles!}$$ [<img src="https://files.catbox.moe/vx4ctz.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2kbsei.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/0kvv93.gif" width="20" alt="wan! wan!"> <br>
   <img src="https://files.catbox.moe/86vdia.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/gyfhvc.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/cdqqug.gif">](https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/95ra6h.gif">](https://en.pronouns.page/@pwppy) <br>
   and my [work in pawgress pronouns.cc](https://pronouns.cc/@pwppys) looks around <br>
+  all my profiles are being reworked so the colors will slooowly change LOL!! otherwise the information is the same <br>
   
 </details>
 
