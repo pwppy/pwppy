@@ -11,6 +11,8 @@
   
 </details>
 
+<img src="https://files.catbox.moe/034kng.gif" width="295" align="left" alt="money power glory by lana del rey">
+
   <table>
     <tr>
       <td>
