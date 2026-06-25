@@ -12,7 +12,7 @@
   all my profiles are being reworked so the colors will slooowly change LOL!! otherwise the information is the same <br>
   </details>
 
-  <br>
+  <br><br><br><br>
 
   <details>
   <summary><img src="https://files.catbox.moe/mlaqyh.gif" width="20" alt="wan! wan!"> $${\color{#f9c8d2}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　𑜀ყ \space friᥱᥒd𝓈! \space ゛ \space 𓈒　e}$$ </summary><br>
