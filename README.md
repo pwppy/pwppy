@@ -20,7 +20,7 @@
     </tr>
   </table>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffd8dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://files.catbox.moe/doqron.png" width="80">
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffd8dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <details>
   <summary><img src="https://files.catbox.moe/mlaqyh.gif" width="20" alt="wan! wan!"> $${\color{#f9c8d2}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　𑜀ყ \space friᥱᥒd𝓈! \space ゛ \space 𓈒　e}$$ </summary><br>
@@ -33,17 +33,3 @@
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ddb3b4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#99abb2}sled \space pwppies!}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
 
 <img src="https://files.catbox.moe/lki9b3.gif" width="295" align="left" alt="money power glory by lana del rey">
-
-<br><br><br><br>
-
-## happy pride month & happy mens mental health awareness month!!
-<img src="https://files.catbox.moe/6uk3mf.png" width="250"> <img src="https://github.com/user-attachments/assets/082d7377-b0c6-40de-a74b-3124e97b7232" width="250"> <img src="https://files.catbox.moe/m8hc9u.png" width="250">
-
-<details>
-  <summary>click for definitions!</summary>
-      we all deserve sunshine♡ you are loved no matter what! <br>
-      1. Omniromantic is a romantic orientation where a person is attracted to all genders, sometimes with a preference for certain genders. <br>
-      2. Androsexual is a sexual orientation where a person is attracted to men, males, and/or masculinity in general. <br>
-      3. Felicanfluid is a gender where one's identity is not fixed and shifts between that of a felidae (cat) and canidae (dog). This encompasses all species in the families and can be used variably. (i made this one myself!) <br>
-</details>
-
