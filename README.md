@@ -14,7 +14,7 @@
   <details>
   <summary><img src="https://files.catbox.moe/9cpi0n.gif" width="20" alt="wan! wan!"> $${\color{#f1b1c4} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
 
-  also on mi [linktree](https://linktr.ee/admin)
+  also on mi [linktree](https://linktr.ee/admin) <br>
   <img src="https://files.catbox.moe/7j2hpz.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/dkztas.gif">](https://rentry.co/angxlpup) <br> <br>
   $${\color{#feeae9}profiles!}$$ [<img src="https://files.catbox.moe/ndv4ms.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2hl6k8.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/25nfwr.gif" width="20" alt="wan! wan!"> <br>
   <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/6t9553.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/ww3q3l.gif">](https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/gtf9r4.gif">](https://en.pronouns.page/@pwppy) <br>
