@@ -14,10 +14,10 @@
   <details>
   <summary><img src="https://files.catbox.moe/9cpi0n.gif" width="20" alt="wan! wan!"> $${\color{#f1b1c4} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
 
-  <img src="https://files.catbox.moe/7j2hpz.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/rmwzx7.gif">](https://rentry.co/angxlpup) <br> <br>
-  $${\color{#feeae9}profiles!}$$ [<img src="https://files.catbox.moe/vx4ctz.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2kbsei.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/25nfwr.gif" width="20" alt="wan! wan!"> <br>
-  <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/gyfhvc.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/cdqqug.gif">](https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/95ra6h.gif">](https://en.pronouns.page/@pwppy) <br>
-  <img src="https://files.catbox.moe/yssd7o.gif" width="20" alt="wan! wan!"> and my [work in pawgress pronouns.cc](https://pronouns.cc/@pwppys) looks around <br>
+  <img src="https://files.catbox.moe/7j2hpz.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/dkztas.gif">](https://rentry.co/angxlpup) <br> <br>
+  $${\color{#feeae9}profiles!}$$ [<img src="https://files.catbox.moe/ndv4ms.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2hl6k8.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/25nfwr.gif" width="20" alt="wan! wan!"> <br>
+  <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/6t9553.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/ww3q3l.gif">](https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/gtf9r4.gif">](https://en.pronouns.page/@pwppy) <br>
+  [<img src="https://files.catbox.moe/ibj0eg.gif">](https://pronouns.cc/@pwppys) <img src="https://files.catbox.moe/yssd7o.gif" width="20" alt="wan! wan!"> <br>
   all my profiles are being reworked so the colors will slooowly change LOL!! otherwise the information is the same <br>
   </details>
 
