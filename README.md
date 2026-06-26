@@ -16,8 +16,8 @@
 
   <img src="https://files.catbox.moe/7j2hpz.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/79j96y.gif">](https://linktr.ee/pwppy) <br> <br>
   [<img src="https://files.catbox.moe/ndv4ms.gif">](https://guns.lol/pwppys) [<img src="https://files.catbox.moe/2hl6k8.gif">](https://pwppyys.carrd.co) <img src="https://files.catbox.moe/25nfwr.gif" width="20" alt="wan! wan!"> <br>
-  <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/6t9553.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/ww3q3l.gif">](https://pwppyys.straw.page/) [<img src="https://files.catbox.moe/gtf9r4.gif">](https://en.pronouns.page/@pwppy) <br>
-  [<img src="https://files.catbox.moe/ibj0eg.gif">](https://pronouns.cc/@pwppys) <img src="https://files.catbox.moe/yssd7o.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/dkztas.gif">](https://rentry.co/pwppyys) <br>
+  <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/6t9553.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/ww3q3l.gif">](https://pwppyys.straw.page/) <br>
+  [<img src="https://files.catbox.moe/gtf9r4.gif">](https://en.pronouns.page/@pwppy) [<img src="https://files.catbox.moe/ibj0eg.gif">](https://pronouns.cc/@pwppys) <img src="https://files.catbox.moe/yssd7o.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/dkztas.gif">](https://rentry.co/pwppyys) <br>
   </details>
 
   <details>
