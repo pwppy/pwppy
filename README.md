@@ -26,6 +26,7 @@
           $${\color{#feeae9}my \space awzzum \space littermates/family! \space =3}$$ <img src="https://files.catbox.moe/e84fjk.gif" width="20" alt="wan! wan!"> <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a>, <a href="https://github.com/dirkskatana">dirk</a> <br>
           $${\color{#feeae9}and \space the \space rest \space of \space mi \space pack \space !!}$$ <img src="https://files.catbox.moe/we4ucl.gif" width="20" alt="wan! wan!"> <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/puppypon">puppypon</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX</a>, <a href="https://github.com/mothbear">mothbear</a>, and <a href="https://github.com/militarymutt">militarymutt</a>! <br>
           $${\color{#feeae9}note \space that \space i \space only \space add \space people \space who \space have \space me \space in \space their \space gh \space or \space are \space dear \space to \space me}$$ <img src="https://files.catbox.moe/owdexi.gif" width="20" alt="wan! wan!"> <br>
+    <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> $${\color{#feeae9}guys \space go \space follow \space this \space awesome \space guy \space hes \space so awesome \space and \space awesome \space ahh!}$$ <br>
   </details>
 
 
