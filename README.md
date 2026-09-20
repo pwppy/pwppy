@@ -29,10 +29,10 @@
   <summary>$${\color{#d6c7bd}𓏵}$$ $${\color{#ddb2b6}𓏴}$$ 　 $${\color{#e895ab}sᥱᥱ}$$ $${\color{#f17ca2}mყ}$$ $${\color{#ce6e91}s᥆ᥴiᥲᥣs!}$$　　 $${\color{#b26484}𓋫}$$ $${\color{#8c5571}⌖}$$ <img src="https://files.catbox.moe/nx5p8b.gif" width="20" alt="pwppy"> </summary>
 
   [<img src="https://files.catbox.moe/h4r0lr.gif">](https://pwppy-directory.carrd.co/) [<img src="https://files.catbox.moe/7jklaf.gif">](https://pwppy-directory.carrd.co/)<br><br>
-  <img src="https://files.catbox.moe/nnmxd5.gif" width="20" alt="pwppy"> [<img src="https://files.catbox.moe/zcxbdf.gif">](https://linktr.ee/pwppy) [<img src="https://files.catbox.moe/7ub2f8.gif">](https://rentry.co/pwppyys)  <br>
-  [<img src="https://files.catbox.moe/pq54qp.gif">](https://pronouns.cc/@pwppys) [<img src="https://files.catbox.moe/hgsrj6.gif">](https://en.pronouns.page/@pwppy) <img src="https://files.catbox.moe/fijwyh.gif" width="20" alt="pwppy"> <br>
-  <img src="https://files.catbox.moe/kxilsw.gif" width="20" alt="pwppy"> [<img src="https://files.catbox.moe/du9hpq.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/z5jiq9.gif">](https://pwppyys.straw.page/) <br>
-  [<img src="https://files.catbox.moe/at49gv.gif">](https://pwppyys.carrd.co) [<img src="https://files.catbox.moe/fwc1uk.gif">](https://guns.lol/pwppys) <img src="https://files.catbox.moe/wyhl4l.gif" width="20" alt="pwppy"> <br>
+  <img src="https://files.catbox.moe/nnmxd5.gif" width="20" alt="pwppy"> [<img src="https://files.catbox.moe/zcxbdf.gif">](https://linktr.ee/pwppy) [<img src="https://files.catbox.moe/7ub2f8.gif">](https://rentry.co/pawflesh)  <br>
+  [<img src="https://files.catbox.moe/pq54qp.gif">](https://pronouns.cc/@pawflesh) [<img src="https://files.catbox.moe/hgsrj6.gif">](https://en.pronouns.page/@pwppy) <img src="https://files.catbox.moe/fijwyh.gif" width="20" alt="pwppy"> <br>
+  <img src="https://files.catbox.moe/kxilsw.gif" width="20" alt="pwppy"> [<img src="https://files.catbox.moe/du9hpq.gif">](https://pwppy.atabook.org/) [<img src="https://files.catbox.moe/z5jiq9.gif">](https://pawflesh.straw.page/) <br>
+  [<img src="https://files.catbox.moe/at49gv.gif">](https://pawflesh.carrd.co) [<img src="https://files.catbox.moe/fwc1uk.gif">](https://guns.lol/pawflesh) <img src="https://files.catbox.moe/wyhl4l.gif" width="20" alt="pwppy"> <br>
   [<img src="https://files.catbox.moe/xmv7jl.gif">](https://github.com/PWESSURE) <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame) [<img src="https://github.com/user-attachments/assets/dc1fdcce-e63f-484c-92de-808b54efad4a" width="30">](https://github.com/pt-fashion)<br>
   </details>
 
