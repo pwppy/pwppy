@@ -7,4 +7,3 @@
 <br><br><br>
 
 # YOU KNOW WHO YOU ARE BTW.
-# COUNT UR DAYS
