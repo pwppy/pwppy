@@ -6,4 +6,4 @@
 
 <br><br><br>
 
-# i can see who forks my readme btw yk who u r
+# i can see who forks my readme btw, and commit dates are public .yk who u r
