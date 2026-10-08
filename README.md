@@ -1,7 +1,9 @@
-<img src="https://files.catbox.moe/leiy2o.png" width="800" alt="pwppy's">
+<p align="center">
+quit copying my readme /my entire profile <br><br>
+<img src="https://files.catbox.moe/uhljd2.png" align="center" width="500" alt="pwppy's"> <br><br>
+ac: dearpetangel
+</p>
 
-<!--- dont fork my repos unless youve asked permission creep. </!--->
 
-
+<!--- dont fork my repos, you should know i can see who forks them </!--->
 <!--- you know who you are </!--->
-<!--- i know who you are too </!--->
