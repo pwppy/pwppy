@@ -1,8 +1,7 @@
 <p align="center"><strong>quit copying my readme/my whole profile</strong></p>
 
 <p align="center">
-<img src="https://files.catbox.moe/uhljd2.png" align="center" width="500" alt="pwppy's"> <br><br>
-ac: dearpetangel
+<img src="https://files.catbox.moe/9qlvfg.png" align="center" width="500" alt="pwppy's"> <br><br>
 </p>
 
 <!--- dont fork my repos, you should know i can see who forks them </!--->
