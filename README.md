@@ -46,4 +46,4 @@
   
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=37383c&label=Ɛ=3" alt="pwppy">　viewcounter has bpd sry
 
-<img src="https://files.catbox.moe/1rzrkm.gif" width="290" align="left" alt="pwppy">
+<img src="https://files.catbox.moe/ihmnpi.gif" width="290" align="left" alt="pwppy">
