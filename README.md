@@ -39,7 +39,7 @@
   <details>
   <summary>　　　　 　　packmates</summary><br>
   <a href="https://github.com/muzzledpup">ferris!</a> and <a href="https://github.com/Battishxx">calvin!</a> superbat trio <3 <br>
-          packmates <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a> p&h sibs <333 <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/dirkskatana">dirk</a> and my beautiful amazing wives who dont play ponytown <br>
+          packmates <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a> p&h sibs <333 <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/dirkskatana">dirk</a>, and my beautiful amazing wives who dont play ponytown <br>
           sled team <a href="https://github.com/pawyo">pawyo</a> pupppy duo!<3 <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/angie">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, <a href="https://github.com/PinkiePieExplosion">shepherd</a>, <a href="https://github.com/feralk9">ren</a>, <a href="https://github.com/DANZNC">dan</a>, <a href="https://github.com/DANZNC">dan</a>, and <a href="https://github.com/angel0fsloth">angel</a>! <br>
   </details>
 
