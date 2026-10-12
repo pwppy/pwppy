@@ -1,4 +1,4 @@
-<!--- dont fork my repos unless youve asked permission creep. </!--->
+<!--- dont fork my repos unless youve asked permission </!--->
 
 
 
