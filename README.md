@@ -46,4 +46,4 @@
   
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=37383c&label=Ɛ=3" alt="pwppy">　viewcounter PLEASE
 
-<img src="https://files.catbox.moe/472t4j.gif" width="130" align="left" alt="pwppy"> <img src="https://files.catbox.moe/doiq1c.gif" width="130" align="left" alt="opwppy"> <br><br><br><br>
+<img src="https://files.catbox.moe/472t4j.gif" width="135" align="left" alt="pwppy"> <img src="https://files.catbox.moe/doiq1c.gif" width="135" align="left" alt="opwppy"> <br><br><br><br>
