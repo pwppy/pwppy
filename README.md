@@ -28,11 +28,11 @@
   <details>
   <summary>　　　 　　　my socials　 </summary>
 
-   [pronouns.cc>](https://pronouns.cc/@pawflesh) <- <br><br>
-  [linktree](https://linktr.ee/pwppy) [rentry](https://rentry.co/pawflesh)  <br>
-  [pronouns page">](https://en.pronouns.page/@pwppy) [atabook](https://pwppy.atabook.org/)<br>
-  [strawpage](https://pawflesh.straw.page/) [carrd](https://pawflesh.carrd.co) <br>
-  [guns](https://guns.lol/pawflesh) [directory (outdated)](https://pwppy-directory.carrd.co/) <br>
+   [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br><br>
+  [pronouns page](https://en.pronouns.page/@pwppy) [rentry](https://rentry.co/pawflesh)  <br>
+  [atabook](https://pwppy.atabook.org/)[strawpage](https://pawflesh.straw.page/) <br>
+  [carrd](https://pawflesh.carrd.co) [guns](https://guns.lol/pawflesh) <br>
+  [linktree](https://linktr.ee/pwppy) [directory (outdated)](https://pwppy-directory.carrd.co/) <br>
   [<img src="https://files.catbox.moe/xmv7jl.gif">](https://github.com/PWESSURE) <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame)<br>
   </details>
 
