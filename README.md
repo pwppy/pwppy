@@ -21,8 +21,8 @@
 
   <details>
   <summary>　　　　　 what happened?</summary>
-  my profile/bio, readme, and code kept getting stolen. im honestly tired of making graphics and coding my readmes for hours, being proud of it, then getting it stolen a week later. so heres a shitty one. ill still answer questions regarding readmes <br>
-  tldr i give up, im not putting effort into these anymore <br>
+  my profile/bio, readme, and code kept getting stolen, and im tired of spending hours making graphics it only for it to get snatched again. ill still answer questions regarding readmes/gfx <br>
+  tldr im not putting effort into these anymore <br>
   </details>
 
   <details>
