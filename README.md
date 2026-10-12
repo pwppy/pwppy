@@ -44,6 +44,6 @@
   </details>
 
   
-<img src="https://komarev.com/ghpvc/?username=pwppy&style=for-the-badge&color=37383c&label=Ɛ=3" alt="pwppy">　　　　rip 17k+ view counter
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=37383c&label=Ɛ=3" alt="pwppy">　<< is viewcounter down
 
 <img src="https://files.catbox.moe/472t4j.gif" width="150" align="left" alt="pwppy"> <img src="https://files.catbox.moe/doiq1c.gif" width="150" align="left" alt="opwppy"> <br><br><br><br>
