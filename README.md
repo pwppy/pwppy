@@ -40,7 +40,7 @@
   <summary>　　　　 　　packmates</summary><br>
   <a href="https://github.com/muzzledpup">ferris!</a> and <a href="https://github.com/Battishxx">calvin!</a> my trio! <br>
           packmates <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a>, <a href="https://github.com/dirkskatana">dirk</a> <br>
-          sled team <img src="https://files.catbox.moe/wutz56.gif" width="20" alt="pwppy"> <a href="https://github.com/pawyo">pawyo!</a> <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/pawfectangel">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, and <a href="https://github.com/PinkiePieExplosion">shepherd</a>! <br>
+          sled team <a href="https://github.com/pawyo">pawyo!</a> <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/pawfectangel">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, and <a href="https://github.com/PinkiePieExplosion">shepherd</a>! <br>
   </details>
 
   
