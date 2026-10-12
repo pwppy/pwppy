@@ -7,7 +7,7 @@
 
 <img src="https://files.catbox.moe/f0ij3b.png" width="400" align="right" alt="pwppy">
 
-<img src="https://files.catbox.moe/p3i3sd.png" width="300" align="left" alt="pwppy">
+<img src="https://files.catbox.moe/p3i3sd.png" width="290" align="left" alt="pwppy">
 
   <table>
     <tr>
@@ -46,4 +46,4 @@
   
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=37383c&label=Ɛ=3" alt="pwppy">　viewcounter PLEASE
 
-<img src="https://files.catbox.moe/472t4j.gif" width="150" align="left" alt="pwppy"> <img src="https://files.catbox.moe/doiq1c.gif" width="150" align="left" alt="opwppy"> <br><br><br><br>
+<img src="https://files.catbox.moe/472t4j.gif" width="140" align="left" alt="pwppy"> <img src="https://files.catbox.moe/doiq1c.gif" width="140" align="left" alt="opwppy"> <br><br><br><br>
