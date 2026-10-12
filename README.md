@@ -5,7 +5,7 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/8a5123dc-7114-412f-8406-f31bf2d2869a" width="400" align="right" alt="pwppy">
+<img src="https://files.catbox.moe/f0ij3b.png" width="400" align="right" alt="pwppy">
 
 <img src="https://files.catbox.moe/p3i3sd.png" width="300" align="left" alt="pwppy">
 
