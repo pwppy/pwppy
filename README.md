@@ -28,7 +28,8 @@
   <details>
   <summary>　　　 　　　my socials　 </summary>
 
-   [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br><br>
+   [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br
+   prns cc and page are the only ones regularly updated. others my be outdated<br><br>
   [pronouns page](https://en.pronouns.page/@pwppy) 　 [rentry](https://rentry.co/pawflesh)  <br>
   [atabook](https://pwppy.atabook.org/) 　 [strawpage](https://pawflesh.straw.page/) <br>
   [carrd](https://pawflesh.carrd.co) 　 [guns](https://guns.lol/pawflesh) <br>
@@ -38,9 +39,11 @@
 
   <details>
   <summary>　　　　 　　packmates</summary><br>
-  <a href="https://github.com/muzzledpup">ferris!</a> and <a href="https://github.com/Battishxx">calvin!</a> superbat trio <3 <br>
-          packmates <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a> p&h sibs <333 <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/dirkskatana">dirk</a>, and my beautiful amazing wives who dont play ponytown <br>
-          sled team <a href="https://github.com/pawyo">pawyo</a> pupppy duo!<3 <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/angie">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, <a href="https://github.com/PinkiePieExplosion">shepherd</a>, <a href="https://github.com/feralk9">ren</a>, <a href="https://github.com/DANZNC">dan</a>, <a href="https://github.com/DANZNC">dan</a>, and <a href="https://github.com/angel0fsloth">angel</a>! <br>
+          superbat trio <a href="https://github.com/muzzledpup">ferris</a> and <a href="https://github.com/Battishxx">calvin</a> <br>
+          stoplight trio <a href="https://github.com/06chromis">chromis</a> <a href="https://github.com/hyacinethia">genesis</a> <br>
+          puppy duo <a href="https://github.com/pawyo">pawyo</a>
+          sled team -> <a href="https://github.com/dirkskatana">dirk</a> hi big bro : D, <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/angie">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, <a href="https://github.com/PinkiePieExplosion">shepherd</a>, <a href="https://github.com/feralk9">ren</a>, <a href="https://github.com/DANZNC">dan</a>, <a href="https://github.com/DANZNC">dan</a>, and <a href="https://github.com/angel0fsloth">angel</a>! <br>
+          hm to PAW, DSS, and my beautiful irl wives who dont play ponytown
   </details>
 
   
