@@ -28,7 +28,7 @@
   <details>
   <summary>　　　 　　　my socials　 </summary>
 
-   [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br
+   [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br>
    prns cc and page are the only ones regularly updated. others my be outdated<br><br>
   [pronouns page](https://en.pronouns.page/@pwppy) 　 [rentry](https://rentry.co/pawflesh)  <br>
   [atabook](https://pwppy.atabook.org/) 　 [strawpage](https://pawflesh.straw.page/) <br>
