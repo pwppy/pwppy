@@ -41,7 +41,7 @@
   <summary>　　　　 　　packmates</summary><br>
           superbat trio <a href="https://github.com/muzzledpup">ferris</a> and <a href="https://github.com/Battishxx">calvin</a> <br>
           stoplight trio <a href="https://github.com/06chromis">chromis</a> <a href="https://github.com/hyacinethia">genesis</a> <br>
-          puppy duo <a href="https://github.com/pawyo">pawyo</a>
+          puppy duo <a href="https://github.com/pawyo">pawyo</a> <br>
           sled team -> <a href="https://github.com/dirkskatana">dirk</a> hi big bro : D, <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/angie">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, <a href="https://github.com/PinkiePieExplosion">shepherd</a>, <a href="https://github.com/feralk9">ren</a>, <a href="https://github.com/DANZNC">dan</a>, <a href="https://github.com/DANZNC">dan</a>, and <a href="https://github.com/angel0fsloth">angel</a>! <br>
           hm to PAW, DSS, and my beautiful irl wives who dont play ponytown
   </details>
