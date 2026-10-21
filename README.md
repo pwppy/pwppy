@@ -30,7 +30,7 @@
 
    [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br>
    prns cc and page are the only ones regularly updated <br><br>
-  [pronouns page](https://en.pronouns.page/@pwppy) 　 [rentry](https://rentry.co/pawflesh)  <br>
+  [pronouns page](https://en.pronouns.page/@pwppy) 　 [rentry](https://rentry.co/pawflesh) outdated  <br>
   [atabook](https://pwppy.atabook.org/) 　 [strawpage](https://pawflesh.straw.page/) outdated <br>
   [carrd](https://pawflesh.carrd.co) outdated 　 [guns](https://guns.lol/pawflesh) <br>
   [linktree](https://linktr.ee/pwppy) 　 [directory](https://pwppy-directory.carrd.co/) both outdated <br>
