@@ -29,11 +29,11 @@
   <summary>　　　 　　　my socials　 </summary>
 
    [pronouns.cc](https://pronouns.cc/@pawflesh) <- <br>
-   prns cc and page are the only ones regularly updated. others my be outdated<br><br>
+   prns cc and page are the only ones regularly updated <br><br>
   [pronouns page](https://en.pronouns.page/@pwppy) 　 [rentry](https://rentry.co/pawflesh)  <br>
-  [atabook](https://pwppy.atabook.org/) 　 [strawpage](https://pawflesh.straw.page/) <br>
-  [carrd](https://pawflesh.carrd.co) 　 [guns](https://guns.lol/pawflesh) <br>
-  [linktree](https://linktr.ee/pwppy) 　 [directory (outdated)](https://pwppy-directory.carrd.co/) <br>
+  [atabook](https://pwppy.atabook.org/) 　 [strawpage](https://pawflesh.straw.page/) outdated <br>
+  [carrd](https://pawflesh.carrd.co) outdated 　 [guns](https://guns.lol/pawflesh) <br>
+  [linktree](https://linktr.ee/pwppy) 　 [directory](https://pwppy-directory.carrd.co/) both outdated <br>
   [<img src="https://files.catbox.moe/xmv7jl.gif">](https://github.com/PWESSURE) <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame)<br>
   </details>
 
