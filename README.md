@@ -42,7 +42,7 @@
   <summary>　　　　 　　packmates</summary><br>
           stoplight trio <a href="https://github.com/06chromis">chromis</a> <a href="https://github.com/hyacinethia">genesis</a> <br>
           puppy duo <a href="https://github.com/pawyo">pawyo</a> <br>
-          restroom ro7loxians <a href="https://github.com/healrr">sword!</a>, overseer, <a href="https://github.com/casino-flush">chance</a>, <a href="https://github.com/seildirectory">sushi</a>, losergirl, mafioso! <br>
+          restroom ro7loxians <a href="https://github.com/healrr">sword!</a>, overseer, <a href="https://github.com/casino-flush">chance</a>, <a href="https://github.com/seildirectory">null</a>, losergirl, mafioso! <br>
           sled team -> <a href="https://github.com/dirkskatana">big bro dirk</a>, <a href="https://github.com/prvttyboy">papa ferris</a>, <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/pawfectangel">angie</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/PinkiePieExplosion">shepherd</a>, <a href="https://github.com/feralk9">ren</a>, <a href="https://github.com/DANZNC">dan</a>, <a href="https://github.com/ArtistsLeafRibbon">mizuki<a/>, <a href="https://github.com/LupinBlue">otter</a>, <a href="https://github.com/kmfkingdm">gambit</a>, and <a href="https://github.com/angel0fsloth">angel</a>! <br><br>
           honorable mentions to PAW, DSS, and my irl qpr wives <3 <br>
           <img src="https://github.com/user-attachments/assets/08819396-be94-40f6-ac81-5f6ff69884a6" width="200" alt="pwppy">
