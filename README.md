@@ -21,8 +21,8 @@
 
   <details>
   <summary>　　　　　 what happened?</summary>
-  my profile/bio, readme, and code kept getting stolen, and im tired of spending hours making graphics it only for it to get snatched again. ill still answer questions regarding readmes/gfx <br>
-  tldr im not putting effort into these anymore <br>
+  my profile/bio, readme, and code kept getting stolen, and im tired of spending hours making graphics it only for it to get snatched again. i might not make pretty githubs for a while, at least until my anxiety settles. ill still answer questions regarding readmes/gfx <br>
+  tldr pretty github hiatus <br>
   </details>
 
   <details>
