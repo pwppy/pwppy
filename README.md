@@ -29,7 +29,8 @@
   <summary>　　　 　　　my socials　 </summary>
 
    [pronouns.cc](https://pronouns.cc/@pwppys) <- <br>
-   prns cc and page are the only ones regularly updated <br><br>
+   prns cc and page are the only ones regularly updated <br>
+   ro9loxians shared rentry soon... <br><br>
    [toyhouse!](https://toyhou.se/pwppy) <br>
   [pronouns page](https://en.pronouns.page/@pwppy) 　 [rentry](https://rentry.co/kttypups) outdated  <br>
   [atabook](https://pwppy.atabook.org/) 　 [strawpage](https://kttypups.straw.page/) outdated <br>
