@@ -28,9 +28,8 @@
   <details>
   <summary>　　　 　　　my socials　 </summary>
 
-   [rentry](https://rentry.co/banhwmmer) <- new! <br>
-   [pronouns.cc](https://pronouns.cc/@pwppys) <- remade! <br>
-   ro9loxians shared rentry soon... <br><br>
+   [rentry](https://rentry.co/banhwmmer)  & [shared ro9loxian rentry!](https://rentry.co/ro9loxians) <- new! <br>
+   [pronouns.cc](https://pronouns.cc/@pwppys) <- remade! <br><br>
    [pronouns page](https://en.pronouns.page/@pwppy) 　 [toyhouse](https://toyhou.se/pwppy)  <br>
    [atabook](https://pwppy.atabook.org/) 　 [guns](https://guns.lol/kttypups) <br>
    [carrd](https://kttypups.carrd.co) outdated 　 [strawpage](https://kttypups.straw.page/) outdated <br>
