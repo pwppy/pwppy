@@ -29,9 +29,10 @@
   <summary>　　　 　　　my socials　 </summary>
 
    [rentry](https://rentry.co/banhwmmer) <- new! <br>
+   [pronouns.cc](https://pronouns.cc/@pwppys) <- remade! <br>
    ro9loxians shared rentry soon... <br><br>
-   [pronouns page](https://en.pronouns.page/@pwppy) 　 [pronouns.cc](https://pronouns.cc/@pwppys)  <br>
-   [atabook](https://pwppy.atabook.org/) 　 [guns](https://guns.lol/kttypups) 　 [toyhouse](https://toyhou.se/pwppy) <br>
+   [pronouns page](https://en.pronouns.page/@pwppy) 　 [toyhouse](https://toyhou.se/pwppy)  <br>
+   [atabook](https://pwppy.atabook.org/) 　 [guns](https://guns.lol/kttypups) <br>
    [carrd](https://kttypups.carrd.co) outdated 　 [strawpage](https://kttypups.straw.page/) outdated <br>
    [linktree](https://linktr.ee/pwppy) outdated 　 [directory](https://pwppy-directory.carrd.co/) outdated <br>
    <a href="https://github.com/PWESSURE"><img src="https://files.catbox.moe/xmv7jl.gif"></a> <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame)<br>
