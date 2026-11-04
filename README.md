@@ -12,7 +12,7 @@
   <table>
     <tr>
       <td>
-     kiki　ou　icarus 　 　 　s/he hyr hym
+     kiki　ou　rhett 　 　 　s/he hyr hym
  <br>
     infp 9w1 sp/so 927　iwcr　susp npd <br>
       </td>
