@@ -20,9 +20,9 @@
   </table>
 
   <details>
-  <summary>　　　　　 what happened?</summary>
-  my profile/bio, readme, and code kept getting stolen, and im tired of spending hours making graphics it only for it to get snatched again. i might not make pretty githubs for a while, at least until my anxiety settles. ill still answer questions regarding readmes/gfx <br>
-  tldr pretty github hiatus <br>
+  <summary>　　　　　 what up?　11/5</summary>
+  still a little antsy about my githubs/graphics getting copied but im reworking all my socials one by one. might get back to making actual graphics soon <br>
+  my state (tx) turned blue wow! go james talafreako <br>
   </details>
 
   <details>
@@ -49,6 +49,6 @@
   </details>
 
   
-<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=f8d36a&label=Ɛ=3" alt="pwppy">　viewcounter has bpd sry
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=f8d36a&label=Ɛ=3" alt="pwppy">　————————————
 
 <img src="https://files.catbox.moe/ihmnpi.gif" width="290" align="left" alt="pwppy">
