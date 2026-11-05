@@ -21,8 +21,9 @@
 
   <details>
   <summary>　　　　　 what up?　11/5</summary>
-  still a little antsy about my githubs/graphics getting copied but im reworking all my socials one by one. might get back to making actual graphics soon <br>
-  my state (tx) turned blue wow! go james talafreako <br>
+  - still a little antsy about my githubs/graphics getting copied but im reworking all my socials one by one. might get back to making actual graphics soon <br>
+  - my state (tx) turned blue wow! go james talafreako <br>
+  - missing my beautiful darlings every day<3... my wives are being homeschooled <br>
   </details>
 
   <details>
