@@ -33,7 +33,7 @@
    [pronouns.cc](https://pronouns.cc/@pwppys) <- remade! <br><br>
    [pronouns page](https://en.pronouns.page/@pwppy) 　 [toyhouse](https://toyhou.se/pwppy)  <br>
    [atabook](https://pwppy.atabook.org/) 　 [guns](https://guns.lol/wuffrrs) <br>
-   carrd, strawpage, linktree, and directory are outdated and wont be released until finished : 3
+   carrd, strawpage, linktree, & directory r outdated <br>
    <a href="https://github.com/PWESSURE"><img src="https://files.catbox.moe/xmv7jl.gif"></a> <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame)<br>
   </details>
 
