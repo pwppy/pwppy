@@ -29,10 +29,11 @@
   <details>
   <summary>　　　 　　　my socials　 </summary>
 
-   [rentry](https://rentry.co/banhwmmer)  & [shared ro9loxian rentry!](https://rentry.co/ro9loxians) <- new! <br>
-   [pronouns.cc](https://pronouns.cc/@pwppys) <- remade! <br><br>
-   [pronouns page](https://en.pronouns.page/@pwppy) 　 [toyhouse](https://toyhou.se/pwppy)  <br>
-   [atabook](https://pwppy.atabook.org/) 　 [guns](https://guns.lol/wuffrrs) <br>
+   [stoplight trio rentry](https://rentry.co/stoplight3) <- new! <br><br>
+
+   [ro9loxians.co](https://rentry.co/ro9loxians)　[rentry](https://rentry.co/banhwmmer)　[atabook](https://pwppy.atabook.org/) <br>
+   [pronouns page](https://en.pronouns.page/@pwppy) 　 [pronouns.cc](https://pronouns.cc/@pwppys)  <br>
+   [guns](https://guns.lol/wuffrrs) 　 [toyhouse](https://toyhou.se/pwppy) <br>
    carrd, strawpage, linktree, & directory r outdated <br>
    <a href="https://github.com/PWESSURE"><img src="https://files.catbox.moe/xmv7jl.gif"></a> <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame)<br>
   </details>
