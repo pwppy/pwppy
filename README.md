@@ -29,7 +29,7 @@
   <details>
   <summary>　　　 　　　my socials　 </summary>
 
-   [rentry](https://rentry.co/banhwmmer)  & [shared rob10xian rentry!](https://rentry.co/ro9loxians) <- new! <br>
+   [rentry](https://rentry.co/banhwmmer)  & [shared ro9loxian rentry!](https://rentry.co/ro9loxians) <- new! <br>
    [pronouns.cc](https://pronouns.cc/@pwppys) <- remade! <br><br>
    [pronouns page](https://en.pronouns.page/@pwppy) 　 [toyhouse](https://toyhou.se/pwppy)  <br>
    [atabook](https://pwppy.atabook.org/) 　 [guns](https://guns.lol/wuffrrs) <br>
@@ -41,7 +41,7 @@
   <summary>　　　　 　　packmates</summary><br>
           stoplight trio <a href="https://github.com/06chromis">chromis</a> <a href="https://github.com/hyacinethia">genesis</a> <br>
           family <a href="https://github.com/manepearr">big bro mane</a>, <a href="https://github.com/prvttyboy">papa ferris</a> <br>
-          restroom rob10xians <a href="https://github.com/healrr">healrr</a>, <a href="https://github.com/reenzzsh">reenzzsh</a>, <a href="https://github.com/casino-flush">casino-flush</a>, <a href="https://github.com/seildirectory">seildirectory</a>, <a href="mijisua">mijisua</a>, <a href="https://github.com/prizeflush">prizeflush</a>, <a href="https://github.com/clockworkclover">clockworkclover</a> <a href="https://github.com/deviousduoz">deviousduoz</a>, <a href="https://github.com/TheTrueEyecollective">TheTrueEyecollective</a> <br>
+          restroom rob10xians <a href="https://github.com/healrr">healrr</a>, <a href="https://github.com/reenzzsh">reenzzsh</a>, <a href="https://github.com/casino-flush">casino-flush</a>, <a href="https://github.com/seildirectory">seildirectory</a>, <a href="mijisua">mijisua</a>, <a href="https://github.com/prizeflush">prizeflush</a>, <a href="https://github.com/clockworkclover">clockworkclover</a> <a href="https://github.com/deviousduoz">deviousduoz</a> <33 <br>
           puppy duo <a href="https://github.com/pawyo">pawyo</a> <br>
           <a href="https://github.com/MrPapbee">MrPapbee</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/PinkiePieExplosion">PinkiePieExplosion</a>, <a href="https://github.com/feralk9">feralk9</a>, <a href="https://github.com/DANZNC">DANZNC</a>, <a href="https://github.com/ArtistsLeafRibbon">ArtistsLeafRibbon<a/>, <a href="https://github.com/LupinBlue">LupinBlue</a>, <a href="https://github.com/kmfkingdm">kmfkingdm</a>, <a href="https://github.com/angel0fsloth">angel0fsloth</a>, and <a href="https://github.com/riftgifts">riftgifts</a> <br><br>
           honorable mentions to PAW, DSS, and my irl qpr wives <3 <br>
