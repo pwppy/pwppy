@@ -20,10 +20,10 @@
   </table>
 
   <details>
-  <summary>　　　　　 what up?　11/5</summary>
+  <summary>　　　　　 what up?　11/8</summary>
   - still a little antsy about my githubs/graphics getting copied but im reworking all my socials one by one. might get back to making actual graphics soon <br>
   - my state (tx) turned blue wow! go james talafreako <br>
-  - missing my beautiful darlings every day<3... my wives are being homeschooled <br>
+  - im genuinely madly in love with my platonic wives its not funny. theyre both homeschooled/long distance. one is taken (but offered me a spot in the relationship so like huh). i miss them so much. guys i love my wives. <br>
   </details>
 
   <details>
