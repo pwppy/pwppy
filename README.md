@@ -20,10 +20,9 @@
   </table>
 
   <details>
-  <summary>　　　　　 what up?　11/8</summary>
-  - still a little antsy about my githubs/graphics getting copied but im reworking all my socials one by one. might get back to making actual graphics soon <br>
-  - my state (tx) turned blue wow! go james talafreako <br>
-  - im genuinely madly in love with my platonic wives its not funny. theyre both homeschooled/long distance. one is taken (but offered me a spot in the relationship so like huh). i miss them so much. guys i love my wives. <br>
+  <summary>　　　　　 what up?　11/9</summary>
+  - I NEED AO3 BACK RIGHT NOW THIS ISNY FUNNY I NEED MY SCYTHEHOOK ANGST.
+  - i kinda miss my old githubs <br>
   </details>
 
   <details>
