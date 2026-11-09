@@ -21,7 +21,7 @@
 
   <details>
   <summary>　　　　　 what up?　11/9</summary>
-  - I NEED AO3 BACK RIGHT NOW THIS ISNY FUNNY I NEED MY SCYTHEHOOK ANGST.
+  - I NEED AO3 BACK RIGHT NOW THIS ISNY FUNNY I NEED MY SCYTHEHOOK ANGST. <br>
   - i kinda miss my old githubs <br>
   </details>
 
