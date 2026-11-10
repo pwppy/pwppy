@@ -5,5 +5,5 @@
   </tr>
   <tr>
     <td>ac: l_xrics</td>
-    <td colspan="2"><details><summary>　　 <img src="https://i.postimg.cc/QN1t3mrg/q.webp" width="20"> 　 $${\color{#c24948}click}$$ 　  $${\color{#e7786c}me}$$ $${\color{#c24948}!}$$　  $${\color{#e7786c}(ꈍ◡ꈍ)}$$ $${\color{#c24948}†๋ ̥̈ ͜𓏼˚̣̣̣}$$　  </summary>this is a big wip if you couldnt tell LOL. bare with me, sorry if youre seeing this. ... if you are then im actively working on it LOL. hello! <br> <details><summary>socials</summary>wooow</details> <br> <details><summary>my friends s</summary>wow</details> </details></td>
+    <td colspan="2"><details><summary>　　 <img src="https://i.postimg.cc/QN1t3mrg/q.webp" width="20"> 　 $${\color{#c24948}click}$$ 　  $${\color{#e7786c}me}$$ $${\color{#c24948}!}$$　  $${\color{#e7786c}(ꈍ◡ꈍ)}$$ $${\color{#c24948}†๋ ̥̈ ͜𓏼˚̣̣̣}$$　  </summary> $${\color{#c24948}cause i got a pretty face,}$$ 　$${\color{#f29e93}i guess that i can sing alright!}$$ <br> ‎ꫂ᭪݁ 　 11 / 9　 HELLO HELLO! <br> <details><summary>socials</summary>wooow</details> <details><summary>my friends</summary>wow</details> </details></td>
   </tr>
