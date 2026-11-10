@@ -5,5 +5,5 @@
   </tr>
   <tr>
     <td>ac: l_xrics</td>
-    <td colspan="2"><details><summary>　　　$${\color{#c24948}click}$$　$${\color{#e7786c}me}$$ $${\color{#c24948}!}$$　$${\color{#e7786c}(^ \space ᴗ \space ^)}%%</summary>this is a big wip if you couldnt tell LOL. bare with me, sorry if youre seeing this. ... if you are then im actively working on it LOL. hello! <br> <details><summary>socials</summary>wooow</details> <br> <details><summary>my friends s</summary>wow</details> </details></td>
+    <td colspan="2"><details><summary>　　　$${\color{#c24948}click}$$ 　 $${\color{#e7786c}me}$$ $${\color{#c24948}!}$$　 $${\color{#e7786c}(^ \space ᴗ \space ^)}%%</summary>this is a big wip if you couldnt tell LOL. bare with me, sorry if youre seeing this. ... if you are then im actively working on it LOL. hello! <br> <details><summary>socials</summary>wooow</details> <br> <details><summary>my friends s</summary>wow</details> </details></td>
   </tr>
