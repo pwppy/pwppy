@@ -10,6 +10,6 @@
     </tr>
     <tr>
     <td> <img src="https://i.postimg.cc/RVmr25ms/image.png" width="170"> </td>
-    <td colspan="2">~♡　 $${\color{#ff83a1}ꚤ}$$𓏼 $${\color{#548532}c⍺ּ࣫n𐴔}$$̮ ̮ $${\color{#a4ad64}꯴ꠋt𑄈p}$$ ۫ ׅ $${\color{#548532}fᧉᩚׅeꪶiηg,}$$ . ۫ · $${\color{#a4ad64}i}$$ $${\color{#548532}ಒ𐐼࣮ׄnꞎ}$$ ﮼، $${\color{#a4ad64}𝒽ꫀr}$$⸝⸝ $${\color{#548532}l𑄜v౿!}$$ ྀིྀིྀིྀིྀི⑅</td>
+    <td colspan="2">~♡　 $${\color{#ff83a1}ꚤ}$$𓏼 $${\color{#ffbe8e}c⍺ּ࣫n𐴔}$$̮ ̮ $${\color{#ff83a1}꯴ꠋt𑄈p}$$ ۫ ׅ $${\color{#ffbe8e}fᧉᩚׅeꪶiηg,}$$ . ۫ · $${\color{#ff83a1}i}$$ $${\color{#ffbe8e}ಒ𐐼࣮ׄnꞎ}$$ ﮼، $${\color{#ff83a1}𝒽ꫀr}$$⸝⸝ $${\color{#ffbe8e}l𑄜v౿!}$$ ྀིྀིྀིྀིྀི⑅</td>
   </tr>
 <table>
