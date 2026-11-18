@@ -1,7 +1,7 @@
 # i was falling asleep in the midst of making this so heres the half baked remake ill finish this tomrrow
 <table>
   <tr>
-    <td> ຼ ᩧ $${\color{#ff83a1}꯱ָׂhe}$$𓏼 $${\color{#ff9690}wαᥒ࣭֗ꞎs}$$ $${\color{#ffbe8e}m𝖾̫͠}$$᪇ꩰ <br> ꪶ $${\color{#ffbe8e}𐴔ׁ͟o}$$ $${\color{#ff9690}b𝕖ꠋᩖ}$$ $${\color{#ff83a1}ᥣׄ͟ov𝗲̷⃨⃨𝒹!}$$ <img src="https://files.catbox.moe/iv41q4.webp" width="20"> <br> <br> $${\color{#ffbe8e}10/31/25}$$ $${\color{#ff83a1}𝗾𝗽𝗿}$$ $${\color{#ffbe8e}polyyuri}$$ <br> <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ff9690&label=　 pwppylings　 " alt="pwppy"> <br><br> ᭄᭡ ݃ ݁ᣟ݂ ͏ $${\color{#ff83a1}𐒾𝗶𝗸𝗂ּ݄}$$˚̣̣̣ ou $${\color{#ff83a1}𝗿Ჩִׅׄe𝘁𝘁}$$ ̣̣ 𓏫   ͜͝ | ྀི <br> $${\color{#ffbe8e}s/he}$$ $${\color{#ff9690}hyr}$$ $${\color{#ff83a1}hym}$$ ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱ <br><br> ( ´ㅅ` Ｕ)ﾉｼ $${\color{#f29e93}iwcr}$$ $${\color{#e7786c}-13}$$ $${\color{#c24948}𝗱𝗻𝗶}$$ <br> <img src="https://i.postimg.cc/1Xk5pg6S/b.webp" width="20"> $${\color{#548532}b⍺ּ݄࣫nhaꩇm𝗲ᩙr}$$ ˙𓈒 $${\color{#a4ad64}irl}$$</td>
+    <td> ຼ ᩧ $${\color{#ff83a1}꯱ָׂhe}$$𓏼 $${\color{#ff9690}wαᥒ࣭֗ꞎs}$$ $${\color{#ffbe8e}m𝖾̫͠}$$᪇ꩰ <br> ꪶ $${\color{#ffbe8e}𐴔ׁ͟o}$$ $${\color{#ff9690}b𝕖ꠋᩖ}$$ $${\color{#ff83a1}ᥣׄ͟ov𝗲̷⃨⃨𝒹!}$$ <img src="https://files.catbox.moe/iv41q4.webp" width="20"> <br> <br> $${\color{#ffbe8e}10/31/25}$$ $${\color{#ff83a1}𝗾𝗽𝗿}$$ $${\color{#ffbe8e}polyyuri}$$ <br> <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ff9690&label=　 pwppylings　 " alt="pwppy"> <br><br> ᭄᭡ ݃ ݁ᣟ݂ ͏ $${\color{#ff83a1}𐒾𝗶𝗸𝗂ּ݄}$$˚̣̣̣ ou $${\color{#ff83a1}𝗿Ჩִׅׄe𝘁𝘁}$$ ̣̣ 𓏫   ͜͝ | ྀི <br> $${\color{#ffbe8e}s/he}$$ $${\color{#ff9690}hyr}$$ $${\color{#ff83a1}hym}$$ ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱ <br><br> ( ´ㅅ` Ｕ)ﾉｼ $${\color{#ff83a1}iwcr}$$ $${\color{#ff9690}-13}$$ $${\color{#ffbe8e}𝗱𝗻𝗶}$$ <br> <img src="https://i.postimg.cc/1Xk5pg6S/b.webp" width="20"> $${\color{#ffbe8e}b⍺ּ݄࣫nhaꩇm𝗲ᩙr}$$ ˙𓈒 $${\color{#ff9690}irl}$$</td>
     <td colspan="2"><img src="https://files.catbox.moe/b9zrb2.png" width="500"></td>
   </tr>
   <tr>
@@ -10,6 +10,6 @@
     </tr>
     <tr>
     <td> <img src="https://i.postimg.cc/RVmr25ms/image.png" width="170"> </td>
-    <td colspan="2">~♡　 $${\color{#a4ad64}ꚤ}$$𓏼 $${\color{#548532}c⍺ּ࣫n𐴔}$$̮ ̮ $${\color{#a4ad64}꯴ꠋt𑄈p}$$ ۫ ׅ $${\color{#548532}fᧉᩚׅeꪶiηg,}$$ . ۫ · $${\color{#a4ad64}i}$$ $${\color{#548532}ಒ𐐼࣮ׄnꞎ}$$ ﮼، $${\color{#a4ad64}𝒽ꫀr}$$⸝⸝ $${\color{#548532}l𑄜v౿!}$$ ྀིྀིྀིྀིྀི⑅</td>
+    <td colspan="2">~♡　 $${\color{#ff83a1}ꚤ}$$𓏼 $${\color{#548532}c⍺ּ࣫n𐴔}$$̮ ̮ $${\color{#a4ad64}꯴ꠋt𑄈p}$$ ۫ ׅ $${\color{#548532}fᧉᩚׅeꪶiηg,}$$ . ۫ · $${\color{#a4ad64}i}$$ $${\color{#548532}ಒ𐐼࣮ׄnꞎ}$$ ﮼، $${\color{#a4ad64}𝒽ꫀr}$$⸝⸝ $${\color{#548532}l𑄜v౿!}$$ ྀིྀིྀིྀིྀི⑅</td>
   </tr>
 <table>
