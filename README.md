@@ -1,7 +1,7 @@
 <table>
   <tr>
     <td> ຼ ᩧ $${\color{#ff83a1}꯱ָׂhe}$$𓏼 $${\color{#ff9690}wαᥒ࣭֗ꞎs}$$ $${\color{#ffbe8e}m𝖾̫͠}$$᪇ꩰ <br> ꪶ $${\color{#ffbe8e}𐴔ׁ͟o}$$ $${\color{#ff9690}b𝕖ꠋᩖ}$$ $${\color{#ff83a1}ᥣׄ͟ov𝗲̷⃨⃨𝒹!}$$ <img src="https://files.catbox.moe/iv41q4.webp" width="20"> <br> <br> $${\color{#ffbe8e}10/31/25}$$ $${\color{#ff83a1}𝗾𝗽𝗿}$$ $${\color{#ffbe8e}polyyuri}$$ <br> <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ff9690&label=　 pwppylings　 " alt="pwppy"> <br><br> ᭄᭡ ݃ ݁ᣟ݂ ͏ $${\color{#ff83a1}𐒾𝗶𝗸𝗂ּ݄}$$˚̣̣̣ ou $${\color{#ff83a1}𝗿Ჩִׅׄe𝘁𝘁}$$ ̣̣ 𓏫   ͜͝ | ྀི <br> $${\color{#ffbe8e}s/he}$$ $${\color{#ff9690}hyr}$$ $${\color{#ff83a1}hym}$$ ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱ <br><br> ( ´ㅅ` Ｕ)ﾉｼ $${\color{#ff83a1}iwcr}$$ $${\color{#ff9690}-13}$$ $${\color{#ffbe8e}𝗱𝗻𝗶}$$ <br> <img src="https://i.postimg.cc/1Xk5pg6S/b.webp" width="20"> $${\color{#ffbe8e}b⍺ּ݄࣫nhaꩇm𝗲ᩙr}$$ ˙𓈒 $${\color{#ff9690}irl}$$</td>
-    <td colspan="2"><img src="https://files.catbox.moe/b9zrb2.png" width="500"></td>
+    <td colspan="2"><img src="https://files.catbox.moe/ki7hne.png" width="500"></td>
   </tr>
   <tr>
     <td>𝗮𝗰:　unreliableheart 　 <img src="https://i.postimg.cc/P5Xr1vF8/j.webp" width="20"> </td>
