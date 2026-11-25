@@ -29,7 +29,8 @@
 <!-- DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK DO NOT FORK -->
 
 <details>
-<summary> <h3> click me for cool art wow </h3> </summary>
+<summary> <h3> click me for cool art wow ill make this pretty later </h3> </summary>
+my oc crosshair isnt xe cute
 <img src="https://github.com/user-attachments/assets/23c64f89-037c-4464-bbb7-207a8d7b1466"/>
 
 <video src="https://github.com/user-attachments/assets/5390e922-8bac-4512-a467-de67a49c5ab1" controls></video>
