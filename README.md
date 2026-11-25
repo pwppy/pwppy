@@ -31,12 +31,8 @@
 <details>
 <summary> <h3> click me for cool art wow ill make this pretty later </h3> </summary>
 my oc crosshair isnt xe cute
-<img src="https://github.com/user-attachments/assets/23c64f89-037c-4464-bbb7-207a8d7b1466"/>
+<img src="https://github.com/user-attachments/assets/04fe81a8-91d2-4e94-8db4-f1e0c86b448a"/>
 
 <video src="https://github.com/user-attachments/assets/5390e922-8bac-4512-a467-de67a49c5ab1" controls></video>
 <video src="https://github.com/user-attachments/assets/47149088-39eb-4bc1-a80f-4d3dcebac8cb" controls></video>
-
-
-
-  
 </details>
