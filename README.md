@@ -30,8 +30,12 @@
 
 <details>
 <summary> <h3> click me for cool art wow ill make this pretty later </h3> </summary>
+hello pawyo
+<img src="https://github.com/user-attachments/assets/58ee8a9f-9748-4692-b02c-6ad7223cc06c" />
+  
 dioda kinsona. puppy spider thing
 <img src="https://github.com/user-attachments/assets/a56e8627-a461-4276-b60f-c09dd33e1b24" />
+
 my oc crosshair isnt xe cute
 <img src="https://github.com/user-attachments/assets/04fe81a8-91d2-4e94-8db4-f1e0c86b448a"/>
 
